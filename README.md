@@ -1,0 +1,1 @@
+# BUPT-Auto-Syllabus-front
